@@ -1,1 +1,1 @@
-# from a friend
+# from friend
